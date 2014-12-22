@@ -37,7 +37,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-THE SOVLES PREPARATION FOR CHRIST.OR, A TREATISE OF CONTRITION.Wherein is discovered How God breaks 
+
 1. A TABLE OF THE CONTENTS.
 
     _ A
